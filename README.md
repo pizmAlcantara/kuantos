@@ -1,2 +1,0 @@
-# kuantumos
-new inovation.
